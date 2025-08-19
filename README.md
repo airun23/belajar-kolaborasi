@@ -1,2 +1,3 @@
 # belajar-kolaborasi
-sangat mengaksyikkan
+sangat menambah wawasan
+
