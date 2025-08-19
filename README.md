@@ -1,3 +1,3 @@
 # belajar-kolaborasi
-sangat menambah wawasan
-
+sangat menambah wawasan, selain itu seru juga
+pokoknya bermanfaat banget
