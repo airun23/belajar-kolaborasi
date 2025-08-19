@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-sangat menyenangkan
+sangat mengaksyikkan
